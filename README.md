@@ -1,1 +1,1 @@
-[Blog](https://taohan.xyz/) comments.
+[Blog](http://taohan.xyz/) comments.
